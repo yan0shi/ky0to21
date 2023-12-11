@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @yan0shi
-- 👀 I’m interested in CyberSecurity
 - 📫 How to reach me - viyviy21@gmail.com
 
 <!---
